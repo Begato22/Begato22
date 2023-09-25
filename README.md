@@ -14,7 +14,7 @@
 
 - 📫 How to reach me **eslam.rali@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1AHJatDPx-pBPHH9VERx_R_OFZ6pqysWW/view?usp=sharing](https://drive.google.com/file/d/1AHJatDPx-pBPHH9VERx_R_OFZ6pqysWW/view?usp=sharing)
+- 📄 Know about my experiences [https://shorturl.at/pyIQU](https://shorturl.at/pyIQU)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
